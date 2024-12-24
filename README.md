@@ -19,5 +19,5 @@ The extension operates entirely within your browser, ensuring no external data t
 Any updates to this Privacy Policy will be communicated through the Chrome Web Store listing page.
 
 6. Contact
-If you have questions about this Privacy Policy, contact us at: [Your Contact Email Address]
+If you have questions about this Privacy Policy, contact us at: katnnmvp@gmail.com
 
